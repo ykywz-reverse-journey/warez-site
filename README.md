@@ -1,3 +1,3 @@
 # warez-site
-https://crackitindonesia.com/
-https://teamarman.com/
+- https://crackitindonesia.com/
+- https://teamarman.com/
